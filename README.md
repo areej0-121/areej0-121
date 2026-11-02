@@ -1,16 +1,12 @@
-## Hi there 👋
-
-<!--
-**areej0-121/areej0-121** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Hi Im Areej
+Professional CVs & Resume Designer | MS Word Expert
+I help students, doctors, teachers & professional get their dream job with a modern, ATS-friendly CV.
+What I Do:
+Modern CV design in MS Word
+Professional Cover Letters
+LinkedIn Profile Makeover
+Starting from just $10
+Fast Delivery - 24 Hours
+Hire Me For Your CV:
+Email [anooshyfaiz@gmail.com]
+Let's create your perfect CV that gets your hired!
